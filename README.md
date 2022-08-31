@@ -1,4 +1,4 @@
-# Shrek Bandcoot
+# Shrek Bandicoot
  
 1° etapa:
 Enredo: Shrek corre pelo pântano ate chegar em sua casa, la enfrentando algum inimigo e é comunicado para ir ate a cidade de tão tão distante
